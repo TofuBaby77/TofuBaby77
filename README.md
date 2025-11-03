@@ -1,5 +1,8 @@
 ## About me
-![23b96c1f4cdce17daa9b9e3c31392d06](https://github.com/user-attachments/assets/d292b674-d5a7-40be-a129-5ab10db201fd)
+
+
+![ffca63c124b9d8bb8266b045902580e6](https://github.com/user-attachments/assets/b902a615-0a57-4085-affc-2c6579eb4494)
+
 
 Happy to c+h if its in my name, or if your just a friend of mine !
 
