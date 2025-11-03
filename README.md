@@ -16,6 +16,10 @@ If you want to be a friend of mine, you will have to give me a name to put on yo
 𓇼~    Disc    ~𓇼
 
    sushi_tofu
+
+## DNI
+
+Dont interact if you just hate me, want to copy or just wanna be a btch to everyone and or ship kids with adults / teens / adults
 <!--
 **TofuBaby77/TofuBaby77** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
