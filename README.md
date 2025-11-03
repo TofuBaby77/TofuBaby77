@@ -8,6 +8,10 @@ Link to my ata!!: https://lazytofu78.atabook.org/
 If you want to be a friend of mine, you will have to give me a name to put on your notes.
 
 @RamenCake01 is my sister and I hang out with her alot on pony town!
+
+𓇼~    Disc    ~𓇼
+
+   sushi_tofu
 <!--
 **TofuBaby77/TofuBaby77** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
