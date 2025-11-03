@@ -1,5 +1,13 @@
 ## Hi there 👋
+![23b96c1f4cdce17daa9b9e3c31392d06](https://github.com/user-attachments/assets/d292b674-d5a7-40be-a129-5ab10db201fd)
 
+Happy to c+h if its in my name, or if your just a friend of mine !
+
+Link to my ata!!: https://lazytofu78.atabook.org/
+
+If you want to be a friend of mine, you will have to give me a name to put on your notes.
+
+@RamenCake01 is my sister and I hang out with her alot on pony town!
 <!--
 **TofuBaby77/TofuBaby77** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
