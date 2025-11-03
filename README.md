@@ -1,4 +1,4 @@
-## Hi there 👋
+## read this !!
 ![23b96c1f4cdce17daa9b9e3c31392d06](https://github.com/user-attachments/assets/d292b674-d5a7-40be-a129-5ab10db201fd)
 
 Happy to c+h if its in my name, or if your just a friend of mine !
