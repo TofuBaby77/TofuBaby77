@@ -3,7 +3,7 @@
 
 <img width="582" height="604" alt="image" src="https://github.com/user-attachments/assets/c30c034b-64ff-4a1b-8a3d-f0deffd54b46" />
 
-
+read my strawpage: https://tofusushi.straw.page/
 ʟɪɴᴋ ᴛᴏ ᴍʏ ᴀᴛᴀ!!: https://lazytofu78.atabook.org/
 
 If you want to be a friend of mine, you will have to give me a name to put on your notes.
