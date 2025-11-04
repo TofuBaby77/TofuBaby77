@@ -1,4 +1,6 @@
 ## ɪᴛꜱ ᴄʜʀɪꜱᴛᴍᴀꜱ ᴛɪɴᴇ🎁
+![image0](https://github.com/user-attachments/assets/fc8dbc33-889b-4c79-82f9-f00c2921ff8a)
+
 
 
 <img width="582" height="604" alt="image" src="https://github.com/user-attachments/assets/c30c034b-64ff-4a1b-8a3d-f0deffd54b46" />
