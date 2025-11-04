@@ -4,6 +4,10 @@
 <img width="582" height="604" alt="image" src="https://github.com/user-attachments/assets/c30c034b-64ff-4a1b-8a3d-f0deffd54b46" />
 .
 
+## go to my carrd! : https://sushitofu.carrd.co/
+
+.
+
 ## read strawpage : https://tofusushi.straw.page/
 
 .
