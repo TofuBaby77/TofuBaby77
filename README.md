@@ -4,8 +4,6 @@
 <img width="582" height="604" alt="image" src="https://github.com/user-attachments/assets/c30c034b-64ff-4a1b-8a3d-f0deffd54b46" />
 
 
-ʜᴀᴘᴘʏ ᴛᴏ ᴄ+ʜ ɪꜰ ɪᴛꜱ ɪɴ ᴍʏ ɴᴀᴍᴇ, ᴏʀ ɪꜰ ʏᴏᴜʀ ᴊᴜꜱᴛ ᴀ ꜰʀɪᴇɴᴅ ᴏꜰ ᴍɪɴᴇ !
-
 ʟɪɴᴋ ᴛᴏ ᴍʏ ᴀᴛᴀ!!: https://lazytofu78.atabook.org/
 
 If you want to be a friend of mine, you will have to give me a name to put on your notes.
@@ -33,6 +31,13 @@ If you want to be a friend of mine, you will have to give me a name to put on yo
 ᴀʟᴡᴀʏꜱ, ᴀɴᴅ ɪ ᴍᴇᴀɴ ᴀʟᴡᴀʏꜱ ᴡʜɪꜱᴘᴇʀ ᴍᴇ ᴏʀ ɪ ᴡᴏɴᴛ ʀᴇꜱᴘᴏɴᴅ (ɪ ᴡᴏɴᴛ ꜱᴇᴇ ɪᴛ ɪɴ ᴛɪᴍᴇ)
 
 <img width="160" height="36" alt="image" src="https://github.com/user-attachments/assets/ce33426c-c9a3-4fe3-90bb-9a87056b6080" />
+
+.
+
+Zhongli
+
+<img width="553" height="643" alt="image" src="https://github.com/user-attachments/assets/a843ea61-af71-4b7c-b7b5-ff5d6adc4afd" />
+
 
 
 <!--
