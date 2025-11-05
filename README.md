@@ -52,7 +52,6 @@ Zhongli
 <img width="553" height="643" alt="image" src="https://github.com/user-attachments/assets/a843ea61-af71-4b7c-b7b5-ff5d6adc4afd" />
 
 
-![xiao-dln7i4z4vj140ji6](https://github.com/user-attachments/assets/1f2c47a9-1795-4c09-b729-807e3c37ae4e) ![xiao](https://github.com/user-attachments/assets/5d038e0b-3f31-424c-9c91-30fea09390e1)
 
 ⏔⏔⏔⏔ ꒰ 𖥔 ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ 𖥔 ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ 𖥔 ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ 𖥔 ꒱ ⏔⏔⏔⏔
 <!--
