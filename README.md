@@ -8,10 +8,9 @@ do be kind to all people even if you dont like them
 
 
 
-☆~ ![](https://komarev.com/ghpvc/?username=your-github-username) ~☆ 
+☆~ ![](https://komarev.com/ghpvc/?username=your-github-username&color=red) ![](https://komarev.com/ghpvc/?username=your-github-username&abbreviated=true) ~☆ 
 
 I didn't know I had that much ??
-
 
 ⏔⏔⏔⏔☆⏔⏔⏔⏔ ꒰ 𖥔 ꒱ ⏔⏔⏔⏔☆⏔⏔⏔⏔
 
