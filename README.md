@@ -1,6 +1,6 @@
 ## Itto is new fav character.
 
-                                ☆⏔⏔⏔⏔ ꒰ 𖥔 ꒱ ⏔⏔⏔⏔☆
+⏔⏔⏔⏔☆⏔⏔⏔⏔ ꒰ 𖥔 ꒱ ⏔⏔⏔⏔☆⏔⏔⏔⏔
 
 do be kind to all people even if you dont like them
 
@@ -8,10 +8,12 @@ do be kind to all people even if you dont like them
 
 
 
-![](https://komarev.com/ghpvc/?username=your-github-username)
+☆~ ![](https://komarev.com/ghpvc/?username=your-github-username) ~☆ 
+
+I didn't know I had that much ??
 
 
-                                ☆⏔⏔⏔⏔ ꒰ 𖥔 ꒱ ⏔⏔⏔⏔☆
+⏔⏔⏔⏔☆⏔⏔⏔⏔ ꒰ 𖥔 ꒱ ⏔⏔⏔⏔☆⏔⏔⏔⏔
 
 <!--
 **TofuBaby77/TofuBaby77** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
