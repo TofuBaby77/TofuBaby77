@@ -1,20 +1,12 @@
-## Itto is new fav character.
-
+## Love can be lost by your actions and what you say. Think before you act
 ⏔⏔⏔⏔☆⏔⏔⏔⏔ ꒰ 𖥔 ꒱ ⏔⏔⏔⏔☆⏔⏔⏔⏔
 
-do be kind to all people even if you dont like them
+![86d54b0cd0034db3eca3a6f18d39a8b2](https://github.com/user-attachments/assets/e30542dc-c671-4281-8fc7-4e98099f46bb)
 
-<img width="512" height="512" alt="sticker_7" src="https://github.com/user-attachments/assets/f73b5118-abdc-40cc-b3d1-382b50df91ce" />
 
 
 
 ☆~ ![](https://komarev.com/ghpvc/?username=your-github-username&color=red) ![](https://komarev.com/ghpvc/?username=your-github-username&abbreviated=true) ~☆ 
-
-I didn't know I had that much ??
-
-@RamenCake01 this nug is my older sister!! I LOVE YOU!! 
-
-<img width="376" height="588" alt="image" src="https://github.com/user-attachments/assets/ae13dff7-3d89-4f73-ac14-b6a115b77f18" />
 
 
 ⏔⏔⏔⏔☆⏔⏔⏔⏔ ꒰ 𖥔 ꒱ ⏔⏔⏔⏔☆⏔⏔⏔⏔
