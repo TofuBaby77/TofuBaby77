@@ -12,6 +12,11 @@ do be kind to all people even if you dont like them
 
 I didn't know I had that much ??
 
+@RamenCake01 this nug is my older sister!! I LOVE YOU!! 
+
+<img width="376" height="588" alt="image" src="https://github.com/user-attachments/assets/ae13dff7-3d89-4f73-ac14-b6a115b77f18" />
+
+
 ⏔⏔⏔⏔☆⏔⏔⏔⏔ ꒰ 𖥔 ꒱ ⏔⏔⏔⏔☆⏔⏔⏔⏔
 
 <!--
