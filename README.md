@@ -1,6 +1,12 @@
 ## Love can be lost by your actions and what you say. Think before you act
+
 <img width="2048" height="815" alt="tumblr_dc8d467dbc35c97111bdf817d37eb7bb_98513485_2048" src="https://github.com/user-attachments/assets/f3ddaad8-4eaa-422d-8ee1-081ecaa614ed" />
+
+![tumblr_f0ff3f26a734f1bb62342a22a5195a27_d416409b_999999999](https://github.com/user-attachments/assets/1528ac94-69ec-4aa5-ad07-f5d611aa271b)
+
 <img width="99" height="56" alt="tumblr_0d38c43b776fb38131e5bd5f637b8066_00fd9f4f_999999999" src="https://github.com/user-attachments/assets/950c03b1-9f75-4144-a0ce-110b475dcc54" />
+
+
 
 𝐃𝐨𝐧'𝐭 𝐠𝐨 𝐜𝐨𝐩𝐢𝐧𝐠 𝐦𝐞 𝐩𝐥𝐳
 
@@ -16,6 +22,7 @@
 
 <img width="101" height="57" alt="tumblr_0290574a040c9afab5cb4a3c9a71254e_6879da20_250" src="https://github.com/user-attachments/assets/7f3b3c38-ec4a-4ccc-b197-a82e8eadeddc" /> <img width="101" height="57" alt="tumblr_a1c4357dc4b16db20bc83f2804e59928_98e7b9a5_250" src="https://github.com/user-attachments/assets/3c8660b1-e464-4bd1-ad69-2a41ed4d0b19" />  <img width="101" height="57" alt="tumblr_bbf5f06a6fcfed3dd74873d0c87aacec_74ba21da_250" src="https://github.com/user-attachments/assets/75e93661-0a99-4e28-8ab6-20bf27d1b906" /> ![tumblr_15ef0fe4dbbca7fa110637a463aa9120_3d0bf55f_100](https://github.com/user-attachments/assets/dbc5812f-9889-4590-a191-213e843ea666) ![tumblr_1ae292ee519295667d364ad9d8108a62_5abf8912_999999999](https://github.com/user-attachments/assets/66cc0748-a58f-4b9f-b119-09ee9945b062) 
 
+![tumblr_3015c3d9cc4453fb73336ced2bfe29f8_e85b664e_999999999](https://github.com/user-attachments/assets/80feaab6-8a5b-4930-aaa2-5b3a8a833910)
 
 
 I love itto
@@ -31,13 +38,18 @@ I love itto
 
 
 
+![tumblr_12342d34c673899a328a6ed5b29fa314_95897ed9_999999999](https://github.com/user-attachments/assets/d0184bc3-c1ae-4668-ac86-2882797072dd)
+
+
+
 
 
 
 ☆~ ![](https://komarev.com/ghpvc/?username=your-github-username&color=red) ![](https://komarev.com/ghpvc/?username=your-github-username&abbreviated=true) ~☆ 
 
 
-⏔⏔⏔⏔☆⏔⏔⏔⏔ ꒰ 𖥔 ꒱ ⏔⏔⏔⏔☆⏔⏔⏔⏔
+<img width="800" height="60" alt="tumblr_f4386b87fcedf5e48a2c3f31d571c63e_2bbe1625_1280" src="https://github.com/user-attachments/assets/9029381b-ebdb-4d81-8299-920faa127ed7" />
+
 
 <!--
 **TofuBaby77/TofuBaby77** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
