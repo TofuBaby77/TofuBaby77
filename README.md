@@ -22,8 +22,6 @@
 
 <img width="101" height="57" alt="tumblr_0290574a040c9afab5cb4a3c9a71254e_6879da20_250" src="https://github.com/user-attachments/assets/7f3b3c38-ec4a-4ccc-b197-a82e8eadeddc" /> <img width="101" height="57" alt="tumblr_a1c4357dc4b16db20bc83f2804e59928_98e7b9a5_250" src="https://github.com/user-attachments/assets/3c8660b1-e464-4bd1-ad69-2a41ed4d0b19" />  <img width="101" height="57" alt="tumblr_bbf5f06a6fcfed3dd74873d0c87aacec_74ba21da_250" src="https://github.com/user-attachments/assets/75e93661-0a99-4e28-8ab6-20bf27d1b906" /> ![tumblr_15ef0fe4dbbca7fa110637a463aa9120_3d0bf55f_100](https://github.com/user-attachments/assets/dbc5812f-9889-4590-a191-213e843ea666) ![tumblr_1ae292ee519295667d364ad9d8108a62_5abf8912_999999999](https://github.com/user-attachments/assets/66cc0748-a58f-4b9f-b119-09ee9945b062) 
 
-![tumblr_3015c3d9cc4453fb73336ced2bfe29f8_e85b664e_999999999](https://github.com/user-attachments/assets/80feaab6-8a5b-4930-aaa2-5b3a8a833910)
-
 
 I love itto
 
