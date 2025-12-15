@@ -30,6 +30,12 @@
 <img width="800" height="60" alt="tumblr_f4386b87fcedf5e48a2c3f31d571c63e_2bbe1625_1280" src="https://github.com/user-attachments/assets/9029381b-ebdb-4d81-8299-920faa127ed7" />
 
 
+heh my wife >.< !! 
+
+<img width="335" height="632" alt="image" src="https://github.com/user-attachments/assets/8da35a10-13ad-4ff2-addf-d631f89fe7c9" />
+
+
+
 <!--
 **TofuBaby77/TofuBaby77** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
