@@ -1,26 +1,13 @@
 ## Love can be lost by your actions and what you say. Think before you act
 
-<img width="2048" height="815" alt="tumblr_dc8d467dbc35c97111bdf817d37eb7bb_98513485_2048" src="https://github.com/user-attachments/assets/f3ddaad8-4eaa-422d-8ee1-081ecaa614ed" />
+
+
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/bdb86197-652a-4e21-a4fd-f562f3c4d290" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/9db137a5-3fab-4d06-9a0a-f97c3fdff73b" />
 
 
 
 
-
-
-𝐃𝐨𝐧'𝐭 𝐠𝐨 𝐜𝐨𝐩𝐢𝐧𝐠 𝐦𝐞 𝐩𝐥𝐳
-
-𝐈 𝐚𝐦 𝐧𝐨𝐫𝐦𝐚𝐥𝐥𝐲 𝐚𝐟𝐤 𝐨𝐫 𝐰𝐢𝐭𝐡 𝐟𝐫𝐢𝐞𝐧𝐝𝐬
-
-𝐃𝐨𝐧'𝐭 𝐠𝐨 𝐚𝐫𝐨𝐮𝐧𝐝 𝐛𝐞𝐢𝐧𝐠 𝐚𝐧𝐧𝐨𝐲𝐢𝐧𝐠 𝐈 𝐰𝐢𝐥𝐥 𝐛𝐥𝐨𝐜𝐤 𝐲𝐨𝐮 𝐚𝐧𝐝 𝐲𝐨𝐮 𝐰𝐨𝐧𝐭 𝐬𝐞𝐞 𝐦𝐞 𝐟𝐨𝐫 𝐞𝐯𝐞𝐫
-
-
-
-<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/4f44f595-8072-41cc-a28a-81d820421a2c" />
-
-
-
-
-
+<img width="243" height="243" alt="image" src="https://github.com/user-attachments/assets/e2376f70-c056-4767-aaca-709aa905c4bf" />
 
 
 
