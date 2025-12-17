@@ -4,11 +4,7 @@
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/bdb86197-652a-4e21-a4fd-f562f3c4d290" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/9db137a5-3fab-4d06-9a0a-f97c3fdff73b" />
 
 
-<img width="129" height="177" alt="image" src="https://github.com/user-attachments/assets/c3fbc17e-389b-4bfa-b46c-7093ab8208f4" />
-
-
-
-Tomoe
+<img width="735" height="753" alt="image" src="https://github.com/user-attachments/assets/cf0caece-5969-4833-a954-b6d6c2898a7b" />
 
 
 
