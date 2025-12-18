@@ -24,6 +24,7 @@
 
 <img width="800" height="60" alt="tumblr_f4386b87fcedf5e48a2c3f31d571c63e_2bbe1625_1280" src="https://github.com/user-attachments/assets/9029381b-ebdb-4d81-8299-920faa127ed7" /> 
 
+<img width="480" height="270" alt="image" src="https://github.com/user-attachments/assets/6ab2ad63-5dc9-4955-a363-ac4cfd8c457b" />
 
 heh my wife >.< !! 
 
