@@ -18,7 +18,8 @@
 ☆~ ![](https://komarev.com/ghpvc/?username=your-github-username&color=red) ![](https://komarev.com/ghpvc/?username=your-github-username&abbreviated=true) ~☆ 
 
 
-<img width="500" height="260" alt="image" src="https://github.com/user-attachments/assets/cd5c7b1c-1a66-406a-bfa3-de49cdb0badf" />
+<img width="500" height="260" alt="image" src="https://github.com/user-attachments/assets/cd5c7b1c-1a66-406a-bfa3-de49cdb0badf" /> <img width="500" height="281" alt="image" src="https://github.com/user-attachments/assets/f125bb9e-0c53-4a05-b784-fadb29618f36" />
+
 
 
 
