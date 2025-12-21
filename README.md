@@ -18,15 +18,11 @@
 ☆~ ![](https://komarev.com/ghpvc/?username=your-github-username&color=red) ![](https://komarev.com/ghpvc/?username=your-github-username&abbreviated=true) ~☆ 
 
 
-<img width="500" height="260" alt="image" src="https://github.com/user-attachments/assets/cd5c7b1c-1a66-406a-bfa3-de49cdb0badf" /> <img width="500" height="281" alt="image" src="https://github.com/user-attachments/assets/f125bb9e-0c53-4a05-b784-fadb29618f36" />
 
 
 
 
-<img width="800" height="60" alt="tumblr_f4386b87fcedf5e48a2c3f31d571c63e_2bbe1625_1280" src="https://github.com/user-attachments/assets/9029381b-ebdb-4d81-8299-920faa127ed7" /> <img width="540" height="297" alt="image" src="https://github.com/user-attachments/assets/5bea6288-72e2-4056-bd2b-e784d86905f4" />
 
-
-<img width="480" height="270" alt="image" src="https://github.com/user-attachments/assets/6ab2ad63-5dc9-4955-a363-ac4cfd8c457b" />
 
 heh my wife >.< !! 
 
