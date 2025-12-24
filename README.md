@@ -1,4 +1,4 @@
-## I like men
+## I Love Itto and Tomoe, even though they are not in the same thing 😛
 <img width="800" height="60" alt="tumblr_f4386b87fcedf5e48a2c3f31d571c63e_2bbe1625_1280" src="https://github.com/user-attachments/assets/9029381b-ebdb-4d81-8299-920faa127ed7" />
 
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/bdb86197-652a-4e21-a4fd-f562f3c4d290" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/9db137a5-3fab-4d06-9a0a-f97c3fdff73b" /> <img width="114" height="47" alt="image" src="https://github.com/user-attachments/assets/e0fdab63-ab04-49cf-98b7-dc2b9b39de49" />
