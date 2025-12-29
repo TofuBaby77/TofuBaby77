@@ -1,4 +1,4 @@
-## I Love Itto and Tomoe, even though they are not in the same thing 😛
+## Meow meow meow :3
 <img width="800" height="60" alt="tumblr_f4386b87fcedf5e48a2c3f31d571c63e_2bbe1625_1280" src="https://github.com/user-attachments/assets/9029381b-ebdb-4d81-8299-920faa127ed7" />
 
 
