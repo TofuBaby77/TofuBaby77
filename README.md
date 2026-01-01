@@ -26,7 +26,8 @@
 
       I love xiao and wanna give him a kiss 
       
-      @Rakki-boop is one of my bestie's online so is: @dearvalenrie @korkor185 @MaseNeuvi @Scara0bsessed @Rakki-boop @Ghxzt13 @dinosnuggies @N1L0U
+      @Rakki-boop is one of my bestie's online so is: @dearvalenrie @korkor185 @MaseNeuvi 
+      @Scara0bsessed @Rakki-boop @Ghxzt13 @dinosnuggies @N1L0U
 
       Sister: @RamenCake01
 
