@@ -25,7 +25,13 @@
 
 
       I love xiao and wanna give him a kiss 
-<img width="370" height="320" alt="image" src="https://github.com/user-attachments/assets/ac3dce63-f170-4254-aeb1-acae085e47f7" />
+      
+      @Rakki-boop is one of my bestie's online so is: @dearvalenrie @korkor185 @MaseNeuvi @Scara0bsessed @Rakki-boop @Ghxzt13 @dinosnuggies @N1L0U
+
+      Sister: @RamenCake01
+
+      Wife: @fallenstarr9
+
 
 
 <img width="800" height="60" alt="tumblr_f4386b87fcedf5e48a2c3f31d571c63e_2bbe1625_1280" src="https://github.com/user-attachments/assets/9029381b-ebdb-4d81-8299-920faa127ed7" />
