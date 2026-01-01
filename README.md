@@ -1,6 +1,18 @@
-## Meow meow meow :3
+## Meow meow meow :3 ♡₊˚⊹
 
-   Hi!! (๑ > ᴗ < ๑)  
+- Hi!! (๑ > ᴗ < ๑)
+
+  
+- call me Tofu or Sushi ˚ ༘♡ ⋆｡˚ ❀
+
+  
+- She / Her or any ⋆ ˚｡⋆୨♡୧⋆ ˚｡⋆
+
+  
+- Don't copy me please! ♡₊˚⊹
+
+  
+- Most of the time sitting with my friend or at a rock. ˚ ༘ ೀ⋆｡˚
 
 
 ☆~ ![](https://komarev.com/ghpvc/?username=your-github-username&color=red) ![](https://komarev.com/ghpvc/?username=your-github-username&abbreviated=true) ~☆ 
