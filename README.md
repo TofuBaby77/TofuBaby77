@@ -1,16 +1,6 @@
 ## Meow meow meow :3
-<img width="800" height="60" alt="tumblr_f4386b87fcedf5e48a2c3f31d571c63e_2bbe1625_1280" src="https://github.com/user-attachments/assets/9029381b-ebdb-4d81-8299-920faa127ed7" />
 
-
-
-
-
-<img width="474" height="558" alt="image" src="https://github.com/user-attachments/assets/63bbf3c5-6c87-4c72-a735-abb98a87afa8" />
-
-
-
-
-
+   Hi!! (๑ > ᴗ < ๑)  
 
 
 ☆~ ![](https://komarev.com/ghpvc/?username=your-github-username&color=red) ![](https://komarev.com/ghpvc/?username=your-github-username&abbreviated=true) ~☆ 
@@ -23,11 +13,6 @@
 
 
 
-heh my wife >.< !! 
-
-<img width="335" height="632" alt="image" src="https://github.com/user-attachments/assets/8da35a10-13ad-4ff2-addf-d631f89fe7c9" />
-
-<img width="114" height="47" alt="image" src="https://github.com/user-attachments/assets/02f142a0-9015-40a6-b0ce-d6fc94889986" />
 
 
 <!--
