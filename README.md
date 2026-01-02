@@ -1,17 +1,17 @@
-## Meow meow meow :3 ♡₊˚⊹
+## 𝙰𝚕𝚠𝚊𝚢𝚜 𝚘𝚏𝚏𝚝𝚊𝚋  ♡₊˚⊹
 <img width="800" height="60" alt="tumblr_f4386b87fcedf5e48a2c3f31d571c63e_2bbe1625_1280" src="https://github.com/user-attachments/assets/9029381b-ebdb-4d81-8299-920faa127ed7" />
 
-         - Hi!! (๑ > ᴗ < ๑)
+         - ʜɪ!! (๑ > ᴗ < ๑)
   
-         - call me Tofu or Sushi ˚ ༘♡ ⋆｡˚ ❀
+         - ᴄᴀʟʟ ᴍᴇ ᴛᴏꜰᴜ ᴏʀ ꜱᴜꜱʜɪ ˚ ༘♡ ⋆｡˚ ❀
   
-         - She / Her or any ⋆ ˚｡⋆୨♡୧⋆ ˚｡⋆
+         -ꜱʜᴇ / ʜᴇʀ ᴏʀ ᴀɴʏ⋆ ˚｡⋆୨♡୧⋆ ˚｡⋆
 
-       - Don't copy me please! ♡₊˚⊹
+       - ᴅᴏɴ'ᴛ ᴄᴏᴘʏ ᴍᴇ ᴘʟᴇᴀꜱᴇ! ♡₊˚⊹
   
-       - Most of the time sitting with my friend or at a rock. ˚ ༘ ೀ⋆｡˚
+       - ᴍᴏꜱᴛ ᴏꜰ ᴛʜᴇ ᴛɪᴍᴇ ꜱɪᴛᴛɪɴɢ ᴡɪᴛʜ ᴍʏ ꜰʀɪᴇɴᴅ ᴏʀ ᴀᴛ ᴀ ʀᴏᴄᴋ. ˚ ༘ ೀ⋆｡˚
 
-      Dni most of the time, but when I do have c+h you can sit with me any time you want.
+      ᴅɴɪ ᴍᴏꜱᴛ ᴏꜰ ᴛʜᴇ ᴛɪᴍᴇ, ʙᴜᴛ ᴡʜᴇɴ ɪ ᴅᴏ ʜᴀᴠᴇ ᴄ+ʜ ʏᴏᴜ ᴄᴀɴ ꜱɪᴛ ᴡɪᴛʜ ᴍᴇ ᴀɴʏ ᴛɪᴍᴇ ʏᴏᴜ ᴡᴀɴᴛ.
 
 
 
@@ -26,7 +26,7 @@
 
 <img width="800" height="60" alt="tumblr_f4386b87fcedf5e48a2c3f31d571c63e_2bbe1625_1280" src="https://github.com/user-attachments/assets/9029381b-ebdb-4d81-8299-920faa127ed7" />
 
-      I love xiao and wanna give him a kiss 
+      ɪ ʟᴏᴠᴇ xɪᴀᴏ ᴀɴᴅ ᴡᴀɴɴᴀ ɢɪᴠᴇ ʜɪᴍ ᴀ ᴋɪꜱꜱ
       
       @Rakki-boop is one of my bestie's online so is: @dearvalenrie @korkor185 @MaseNeuvi 
       @Scara0bsessed @Rakki-boop @Ghxzt13 @dinosnuggies @N1L0U
@@ -42,14 +42,14 @@
 
 
 
-      I don't talk much, so don't think imma start a Conversation with you. 
+      ɪ ᴅᴏɴ'ᴛ ᴛᴀʟᴋ ᴍᴜᴄʜ, ꜱᴏ ᴅᴏɴ'ᴛ ᴛʜɪɴᴋ ɪᴍᴍᴀ ꜱᴛᴀʀᴛ ᴀ ᴄᴏɴᴠᴇʀꜱᴀᴛɪᴏɴ ᴡɪᴛʜ ʏᴏᴜ. 
       
-      Im not being rude! I just don't really know how to start up a Conversation..
+      ɪᴍ ɴᴏᴛ ʙᴇɪɴɢ ʀᴜᴅᴇ! ɪ ᴊᴜꜱᴛ ᴅᴏɴ'ᴛ ʀᴇᴀʟʟʏ ᴋɴᴏᴡ ʜᴏᴡ ᴛᴏ ꜱᴛᴀʀᴛ ᴜᴘ ᴀ ᴄᴏɴᴠᴇʀꜱᴀᴛɪᴏɴ..
 
 
-      Just whisper me if you know or think I am offtab which is most of the time.
+      ᴊᴜꜱᴛ ᴡʜɪꜱᴘᴇʀ ᴍᴇ ɪꜰ ʏᴏᴜ ᴋɴᴏᴡ ᴏʀ ᴛʜɪɴᴋ ɪ ᴀᴍ ᴏꜰꜰᴛᴀʙ ᴡʜɪᴄʜ ɪꜱ ᴍᴏꜱᴛ ᴏꜰ ᴛʜᴇ ᴛɪᴍᴇ.
       
-      I am friendly don't worry ♡₊˚⊹
+      ɪ ᴀᴍ ꜰʀɪᴇɴᴅʟʏ ᴅᴏɴ'ᴛ ᴡᴏʀʀʏ ♡₊˚⊹
 
 
 <img width="800" height="60" alt="tumblr_f4386b87fcedf5e48a2c3f31d571c63e_2bbe1625_1280" src="https://github.com/user-attachments/assets/9029381b-ebdb-4d81-8299-920faa127ed7" />
