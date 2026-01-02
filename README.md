@@ -28,8 +28,8 @@
 
       ɪ ʟᴏᴠᴇ xɪᴀᴏ ᴀɴᴅ ᴡᴀɴɴᴀ ɢɪᴠᴇ ʜɪᴍ ᴀ ᴋɪꜱꜱ
       
-      @Rakki-boop is one of my bestie's online so is: @dearvalenrie @korkor185 @MaseNeuvi 
-      @Scara0bsessed @Rakki-boop @Ghxzt13 @dinosnuggies @N1L0U
+      my bestie's online: @dearvalenrie ･ @korkor185 ･ @MaseNeuvi 
+      ･ @Scara0bsessed ･ @Rakki-boop ･ @Ghxzt13 ･ @dinosnuggies ･ @N1L0U
 
       Sister: @RamenCake01
 
