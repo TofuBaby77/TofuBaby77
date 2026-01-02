@@ -34,6 +34,10 @@
       Sister: @RamenCake01
 
       Wife: @fallenstarr9
+
+<img width="800" height="60" alt="tumblr_f4386b87fcedf5e48a2c3f31d571c63e_2bbe1625_1280" src="https://github.com/user-attachments/assets/9029381b-ebdb-4d81-8299-920faa127ed7" />
+
+
 <img width="1013" height="416" alt="image" src="https://github.com/user-attachments/assets/31860bb7-263e-4e71-bf18-85c388203f85" />
 
 
