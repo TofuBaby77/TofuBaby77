@@ -38,6 +38,19 @@
 <img width="800" height="60" alt="tumblr_f4386b87fcedf5e48a2c3f31d571c63e_2bbe1625_1280" src="https://github.com/user-attachments/assets/9029381b-ebdb-4d81-8299-920faa127ed7" />
 
 
+      I don't talk much, so don't think imma start a Conversation with you. 
+      
+      Im not being rude! I just don't really know how to start up a Conversation..
+
+
+      Just whisper me if you know or think I am offtab which is most of the time.
+      
+      I am friendly don't worry ♡₊˚⊹
+
+
+<img width="800" height="60" alt="tumblr_f4386b87fcedf5e48a2c3f31d571c63e_2bbe1625_1280" src="https://github.com/user-attachments/assets/9029381b-ebdb-4d81-8299-920faa127ed7" />
+
+      
 ☆~ ![](https://komarev.com/ghpvc/?username=your-github-username&color=red) ![](https://komarev.com/ghpvc/?username=your-github-username&abbreviated=true) ~☆ 
 
 
