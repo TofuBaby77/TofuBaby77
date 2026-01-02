@@ -55,6 +55,9 @@
       
       ɪ ᴀᴍ ꜰʀɪᴇɴᴅʟʏ ᴅᴏɴ'ᴛ ᴡᴏʀʀʏ ♡₊˚⊹
 
+[My Insta!](https://www.instagram.com/sushutofu/) [My AtaBook!](https://lazytofu78.atabook.org/) [My Wife GitHub!<3](https://github.com/fallenstarr9) [StrawPage](https://tofusushi.straw.page/) [Card](https://sushitofu.carrd.co/)
+
+
 
 <img width="800" height="60" alt="tumblr_f4386b87fcedf5e48a2c3f31d571c63e_2bbe1625_1280" src="https://github.com/user-attachments/assets/9029381b-ebdb-4d81-8299-920faa127ed7" />
 
