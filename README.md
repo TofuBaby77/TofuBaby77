@@ -55,7 +55,7 @@
       
       ɪ ᴀᴍ ꜰʀɪᴇɴᴅʟʏ ᴅᴏɴ'ᴛ ᴡᴏʀʀʏ ♡₊˚⊹
 
-[My Insta!](https://www.instagram.com/sushutofu/) [My AtaBook!](https://lazytofu78.atabook.org/) [My Wife GitHub!<3](https://github.com/fallenstarr9) [StrawPage](https://tofusushi.straw.page/) [Card](https://sushitofu.carrd.co/)
+[Insta](https://www.instagram.com/sushutofu/) [AtaBook!](https://lazytofu78.atabook.org/) [Wife GitHub!<3](https://github.com/fallenstarr9) [StrawPage](https://tofusushi.straw.page/) [Card](https://sushitofu.carrd.co/)
 
 
 
