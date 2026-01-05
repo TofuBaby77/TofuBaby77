@@ -59,7 +59,7 @@
       
       ɪ ᴀᴍ ꜰʀɪᴇɴᴅʟʏ ᴅᴏɴ'ᴛ ᴡᴏʀʀʏ ♡₊˚⊹
 
-[Insta](https://www.instagram.com/sushutofu/) [AtaBook!](https://lazytofu78.atabook.org/) [Wife GitHub!<3](https://github.com/fallenstarr9) [StrawPage](https://tofusushi.straw.page/) [Card](https://sushitofu.carrd.co/)
+[Insta](https://www.instagram.com/sushutofu/) [AtaBook!](https://lazytofu78.atabook.org/) [Wife GitHub!<3](https://github.com/fallenstarr9) [StrawPage](https://tofusushi.straw.page/) [Card](https://sushitofu.carrd.co/) [My Bluesky](https://bsky.app/profile/tiredturtlesad.bsky.social_)
 
 
 
