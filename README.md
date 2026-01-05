@@ -1,4 +1,8 @@
 ## 𝙰𝚕𝚠𝚊𝚢𝚜 𝚘𝚏𝚏𝚝𝚊𝚋  ♡₊˚⊹
+
+<img width="689" height="260" alt="image" src="https://github.com/user-attachments/assets/d09b03af-33d3-4dde-8348-af7d1dc67389" />
+
+
 <img width="800" height="60" alt="tumblr_f4386b87fcedf5e48a2c3f31d571c63e_2bbe1625_1280" src="https://github.com/user-attachments/assets/9029381b-ebdb-4d81-8299-920faa127ed7" />
 
          - ʜɪ!! (๑ > ᴗ < ๑)
