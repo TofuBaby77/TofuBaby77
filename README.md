@@ -33,7 +33,7 @@
       ɪ ʟᴏᴠᴇ xɪᴀᴏ ᴀɴᴅ ᴡᴀɴɴᴀ ɢɪᴠᴇ ʜɪᴍ ᴀ ᴋɪꜱꜱ
       
       my bestie's online: @dearvalenrie ･ @korkor185 ･ @MaseNeuvi 
-      ･ @Scara0bsessed ･ @Rakki-boop ･ @Ghxzt13 ･ @dinosnuggies ･ @N1L0U
+      ･ @Scara0bsessed ･ @Ghxzt13 ･ @dinosnuggies ･ @N1L0U
 
       Sister: @RamenCake01
 
