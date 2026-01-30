@@ -10,7 +10,8 @@ WANTED
 <img width="243" height="243" alt="image" src="https://github.com/user-attachments/assets/12837780-887b-4b8b-966e-b97bc0e256b5" />
 
 
-
+      DC : sushi_tofu
+      Genshin UID America: 664034322
 
  
 
