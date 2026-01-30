@@ -1,6 +1,9 @@
 ## 𝙰𝚕𝚠𝚊𝚢𝚜 𝚘𝚏𝚏𝚝𝚊𝚋  ♡₊˚⊹
+WANTED
 
-<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/d66e72ad-03f2-4ad2-8cc1-7e31be4535da" />
+<img width="232" height="228" alt="image" src="https://github.com/user-attachments/assets/93501bbc-b6e6-47af-a21e-34e830016381" />
+
+
 
       
 ☆~ ![](https://komarev.com/ghpvc/?username=your-github-username&color=red) ![](https://komarev.com/ghpvc/?username=your-github-username&abbreviated=true) ~☆ 
