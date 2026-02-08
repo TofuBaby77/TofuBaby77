@@ -1,5 +1,6 @@
 ## 𝙰𝚕𝚠𝚊𝚢𝚜 𝚘𝚏𝚏𝚝𝚊𝚋  ♡₊˚⊹
 
+<img width="640" height="64" alt="image" src="https://github.com/user-attachments/assets/7310a498-fdc2-4ed3-91d4-223d23d357e4" />
 
 
       DC : sushi_tofu
@@ -10,8 +11,10 @@
 
 People I like ~ !
 
-<img width="994" height="222" alt="image" src="https://github.com/user-attachments/assets/007b19d6-3ac0-4ee5-82cd-864182c2c8cd" /> <img width="231" height="70" alt="image" src="https://github.com/user-attachments/assets/b720c300-48e0-4e78-81c2-7c793c765f90" />
+<img width="994" height="222" alt="image" src="https://github.com/user-attachments/assets/007b19d6-3ac0-4ee5-82cd-864182c2c8cd" /> 
 
+
+<img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/b27c67d7-eb59-4f5a-99e5-7ef005c2ffd3" />
 
 
 
@@ -33,6 +36,7 @@ People I like ~ !
 
 
 
+<img width="640" height="64" alt="image" src="https://github.com/user-attachments/assets/d3fa37e3-fd72-49d2-a36e-abad5869a8ec" />
 
 
       
