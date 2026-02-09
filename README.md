@@ -14,7 +14,9 @@ People I like ~ !
 <img width="994" height="222" alt="image" src="https://github.com/user-attachments/assets/007b19d6-3ac0-4ee5-82cd-864182c2c8cd" /> 
 
 
-<img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/b27c67d7-eb59-4f5a-99e5-7ef005c2ffd3" />
+<img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/b27c67d7-eb59-4f5a-99e5-7ef005c2ffd3" /> <img width="46" height="162" alt="image" src="https://github.com/user-attachments/assets/50c9285f-6483-4c63-86dd-caa28cb38cea" />
+
+
 
 
 
