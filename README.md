@@ -1,5 +1,6 @@
 ## 𝙰𝚕𝚠𝚊𝚢𝚜 𝚘𝚏𝚏𝚝𝚊𝚋  ♡₊˚⊹
-<img width="730" height="545" alt="image" src="https://github.com/user-attachments/assets/2c2507a2-76f5-49e4-8421-cd64b370b43a" />
+<img width="730" height="545" alt="image" src="https://github.com/user-attachments/assets/70e6dc87-752f-4be6-a241-9bf78e835bd4" />
+
 
 
 
