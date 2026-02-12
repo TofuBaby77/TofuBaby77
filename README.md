@@ -1,9 +1,10 @@
 ## 𝙰𝚕𝚠𝚊𝚢𝚜 𝚘𝚏𝚏𝚝𝚊𝚋  ♡₊˚⊹
-edit later
 
+Call me Sushi or even Tofu
 
+[atabook](https://lazytofu78.atabook.org/) < - Sign it , or I will Find you 🙂
 
-
+[strawpage](https://tofusushi.straw.page/) < - i'm making a new one.
 
 
 
