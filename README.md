@@ -6,6 +6,10 @@ Call me Sushi or even Tofu
 
 [strawpage](https://tofusushi.straw.page/) < - i'm making a new one.
 
+<img width="215" height="248" alt="image" src="https://github.com/user-attachments/assets/6f62dda8-89ee-40fe-9c1c-ec9022abf723" /> <img width="190" height="198" alt="image" src="https://github.com/user-attachments/assets/c92f1eca-7389-4177-85f7-c0a462e9059b" />
+
+<img width="152" height="165" alt="image" src="https://github.com/user-attachments/assets/75bfaedb-8084-4ca8-848c-285115d6d744" /> <img width="161" height="180" alt="image" src="https://github.com/user-attachments/assets/ae876f01-721b-4ab2-a551-56674791c85d" />
+
 
 
 
