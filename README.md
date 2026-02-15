@@ -6,6 +6,7 @@ Call me Sushi or even Tofu
 
 [strawpage](https://tofusushi.straw.page/) < - i'm making a new one.
 
+[card](https://tomoecard.carrd.co/) < - about me and links to other webs i am on
 <img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/2cc4a5d3-6881-4d6e-80e2-d2c43d239386" />
 
 
