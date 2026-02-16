@@ -7,7 +7,11 @@ Call me Sushi or even Tofu
 [strawpage](https://tofusushi.straw.page/) < - i'm making a new one.
 
 [card](https://tomoecard.carrd.co/) < - about me and links to other webs i am on
-<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/2cc4a5d3-6881-4d6e-80e2-d2c43d239386" />
+
+[Twitter/X](https://x.com/Lazy_Tofu7) < - Go and follow me there, i do stinky art
+
+<img width="333" height="351" alt="image" src="https://github.com/user-attachments/assets/320d89db-a37d-48ac-b530-b8ce911a84a5" />
+
 
 
 
